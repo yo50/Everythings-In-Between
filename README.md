@@ -1,3 +1,5 @@
+![Everythings In Between EP Artwork](https://is3-ssl.mzstatic.com/image/thumb/Music62/v4/26/aa/23/26aa238b-4377-735e-0bab-1acdde8d6114/source/200x200bb.jpg)
+
 # Everythings in Between
 
 #### Tracklist

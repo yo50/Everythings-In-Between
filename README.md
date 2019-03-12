@@ -1,4 +1,4 @@
-![Everythings In Between EP Artwork](https://is3-ssl.mzstatic.com/image/thumb/Music62/v4/26/aa/23/26aa238b-4377-735e-0bab-1acdde8d6114/source/200x200bb.jpg)
+![Everythings In Between EP Artwork](https://distrokid.imgix.net/http%3A//distrokid.com/hyperfollow/art/yo50/c13L?w=800&s=42e9f1370d97474a338d70b095aa6b97)
 
 # Everythings in Between
 
